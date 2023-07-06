@@ -8,10 +8,11 @@
  oh also, author me is making this readable for people not even in the fandom. <3`  
 *** 
 When the door opens, there are chattering in the hallways. 
-Mingling workers lurk their whispers underneath hushed breaths, as they watch Olive stride through the court's hallways. Brown jacket flaring. 
+Mingling workers lurk their whispers underneath hushed breaths, as they watch Olive stride through the court's hallways. Confident in his walk. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM0NTU3MTcyNiw2NTk5NDkzNzgsLTM5Mz
-Q5NDUwNSwtMzA4MjkxODQ4LC0yMDY5MTI4MTQwLC01MzA2MzM1
-NiwtNTQ3MDczNzYxLC0xMDg4Mjc5MTg3LDE2MDMxMTI0NzYsLT
-E2NTk0ODU3NTUsLTE0NzM4Njc5NCwyMTI4Nzk3NDQ0XX0=
+eyJoaXN0b3J5IjpbLTgwNTc0MjIxMSwtMzQ1NTcxNzI2LDY1OT
+k0OTM3OCwtMzkzNDk0NTA1LC0zMDgyOTE4NDgsLTIwNjkxMjgx
+NDAsLTUzMDYzMzU2LC01NDcwNzM3NjEsLTEwODgyNzkxODcsMT
+YwMzExMjQ3NiwtMTY1OTQ4NTc1NSwtMTQ3Mzg2Nzk0LDIxMjg3
+OTc0NDRdfQ==
 -->
