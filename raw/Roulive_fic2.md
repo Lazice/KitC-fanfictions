@@ -7,9 +7,10 @@
  `Found a better way to edit this. Markup beloved. Github beloved.`  
 *** 
 When the door opens, there are chattering in the hallways. 
-Mingling workers lurk their whispers underneath hushed breaths, as they watch Olive stride through the court's hallways. Words go a long way, literally. As it isn't long before the
+Mingling workers lurk their whispers underneath hushed breaths, as they watch Olive stride through the court's hallways. Words go a long way. 
+Literally. As it isn't long before most the courts get notice of the 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NTc5MDUxMTEsLTU0NzA3Mzc2MSwtMT
-A4ODI3OTE4NywxNjAzMTEyNDc2LC0xNjU5NDg1NzU1LC0xNDcz
-ODY3OTQsMjEyODc5NzQ0NF19
+eyJoaXN0b3J5IjpbLTUzMDYzMzU2LC01NDcwNzM3NjEsLTEwOD
+gyNzkxODcsMTYwMzExMjQ3NiwtMTY1OTQ4NTc1NSwtMTQ3Mzg2
+Nzk0LDIxMjg3OTc0NDRdfQ==
 -->
