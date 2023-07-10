@@ -14,7 +14,9 @@ The concrete grounds lay a single path out of the castle, outside into the woods
 *"Name and suit?"*
 "Olive, Diamond candidate."
 The burly handman slowly turns away from it, letting their gaze leave Olive last as they'd go to unlock. The door swings open with with a creek, the cobble grounds accent the flourishing, cold Autumn. 
-... The tallest hill isn't hard to spot, but a turn to the left and off the tracks. 
+
+... The tallest hill isn't hard to spot, but a turn to the left and off the tracks. Upon tracks and making ways, 
+
 <!--stackedit_data:
 eyJoaXN0b3J5IjpbLTgwNTc0MjIxMSwtMzQ1NTcxNzI2LDY1OT
 k0OTM3OCwtMzkzNDk0NTA1LC0zMDgyOTE4NDgsLTIwNjkxMjgx
