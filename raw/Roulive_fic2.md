@@ -13,6 +13,6 @@ The burly handman slowly turns away from it, letting their gaze leave Olive last
 ... The tallest hill isn't hard to spot, but a turn to the left and off the tracks. Upon tracks and making ways, he treks upwards. 
 The lightest change, but the winds are harsher further up. 
 
-    The way the hill rises above, higher than the trees, higher than the . Roulx sure does stand out against the dull green shrubbery of Autumn. How time steals away from life...
+The way the hill rises above, higher than the trees, higher than the . Roulx sure does stand out against the dull green shrubbery of Autumn. How time steals away from life...
 
-    A flurry white figure sits underneath the looming foliage, as ki almost glows with the way that the afternoon sunlight accents kir presence. As the usual, ki seems calm. The way that the cold of winter seems to have came early, the way that kir eyes meets theirs, they notice the tiredness ever so hidden away.
+A flurry white figure sits underneath the looming foliage, as ki almost glows with the way that the afternoon sunlight accents kir presence. As the usual, ki seems calm. The way that the cold of winter seems to have came early, the way that kir eyes meets theirs, they notice the tiredness ever so hidden away.
