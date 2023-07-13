@@ -1,8 +1,3 @@
-
-
-
-> Written with [StackEdit](https://stackedit.io/). A markup editor.
-
 `author's notes` 
  `Found a better way to edit this. Markup beloved. Github beloved.
  oh also, author me is making this readable for people not even in the fandom. <3`  
@@ -15,12 +10,9 @@ The concrete grounds lay a single path out of the castle, outside into the woods
 "Olive, Diamond candidate."
 The burly handman slowly turns away from it, letting their gaze leave Olive last as they'd go to unlock. The door swings open with with a creek, the cobble grounds accent the flourishing, cold Autumn. 
 
-... The tallest hill isn't hard to spot, but a turn to the left and off the tracks. Upon tracks and making ways, 
+... The tallest hill isn't hard to spot, but a turn to the left and off the tracks. Upon tracks and making ways, he treks upwards. 
+The lightest change, but the winds are harsher further up. 
 
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgwNTc0MjIxMSwtMzQ1NTcxNzI2LDY1OT
-k0OTM3OCwtMzkzNDk0NTA1LC0zMDgyOTE4NDgsLTIwNjkxMjgx
-NDAsLTUzMDYzMzU2LC01NDcwNzM3NjEsLTEwODgyNzkxODcsMT
-YwMzExMjQ3NiwtMTY1OTQ4NTc1NSwtMTQ3Mzg2Nzk0LDIxMjg3
-OTc0NDRdfQ==
--->
+    The way the hill rises above, higher than the trees, higher than the . Roulx sure does stand out against the dull green shrubbery of Autumn. How time steals away from life...
+
+    A flurry white figure sits underneath the looming foliage, as ki almost glows with the way that the afternoon sunlight accents kir presence. As the usual, ki seems calm. The way that the cold of winter seems to have came early, the way that kir eyes meets theirs, they notice the tiredness ever so hidden away.
