@@ -15,11 +15,11 @@ The wheel chose this.
  - You wouldn't even have to walk far to get here.
  - Yeah. Okay. I can imagine this.
  
+`Angst and fluff` `Olive Stanford (KitC)` `Roulx Rhymer (KitC)` `probably inaccurate depiction of grief` `sometimes the narrator lies`
 
 # Olive x Roulx fic.
-	Angst and fluff, Olive Stanford (KitC), Roulx Rhymer (KitC), probably inaccurate depiction of grief, sometimes the narrator lies.
-`  author's notes`
-` All shits and giggles. Sorry I don't accept criticism except for grammatical errors.`
+	author's notes
+	All shits and giggles. Sorry I don't accept criticism except for grammatical errors.
 
 ---
 
