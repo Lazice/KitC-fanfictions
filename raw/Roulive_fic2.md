@@ -61,3 +61,5 @@ A cateye's hatch opens up top. A familiar pair of eyes make to greet Olive, then
 "I don't remember you, Roulx sir going out." His pea sized eyes squint even smaller, more cautious at although the brightest candidate in the court. One that the servants would remember to have interacted with.
 
 "... I don't know, my friend please excuse my mishap this time." And Roulx bows their head at him, ever so in a plea. 
+
+Olive himself stands present in front of Roulx, the gateman's gaze looks over him and 
