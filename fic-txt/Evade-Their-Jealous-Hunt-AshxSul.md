@@ -1,3 +1,4 @@
+Written by Rowen
 # Evade Their Jealous Hunts
 > Fic title from Furthest Star by Dirt Poor Robins
 
@@ -7,6 +8,8 @@ Warnings: **Ableism**,  **Implied/Referenced Homophobia**
 *Unlikely to appear, but past instances which inform Ash's decisions.
 
 *Chapter Specific Warnings in Author's Notes.
+
+Summery: When Sulfria is stranded in the 1890s, she receives assistance from the mysterious individual who goes by Ash.
 
 
 Tags:  [ `Ash KitC` / `Sulfuria/"Sul"`, `The Tired Physician`, `Knightshayde` ]
