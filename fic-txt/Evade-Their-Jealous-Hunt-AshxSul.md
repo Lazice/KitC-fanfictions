@@ -9,7 +9,8 @@ Warnings: **Ableism**,  **Implied/Referenced Homophobia**
 
 *Chapter Specific Warnings in Author's Notes.
 
-Summery: When Sulfria is stranded in the 1890s, she receives assistance from the mysterious individual who goes by Ash.
+Summery: 
+> When Sulfria is stranded in the 1890s, she receives assistance from the mysterious individual who goes by Ash.
 
 
 Tags:  [ `Ash KitC` / `Sulfuria/"Sul"`, `The Tired Physician`, `Knightshayde` ]
