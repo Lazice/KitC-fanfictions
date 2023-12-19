@@ -9,5 +9,15 @@ There's two types that I'm storing them in.
 
 Also there's a 3rd folder. It's for storing Work In Progresses. Called wips. 
 
+## MarkDown. How I format.
+MarkDowns. Each fic would be appropriately named with their Title in the file name.
+1. Who it's written by
+2. Fic Title
+3. Fic warnings
+4. Summery
+5. Tags
+6. Date Last Updated. Year/Month/Day
+
+There may also be additional notes marked with an asterisk ( * ). All Author's notes will be noted with the > before the text, going under their each sections.
 
 [Last updated: 18th of December 2023.]
