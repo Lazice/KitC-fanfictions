@@ -1,6 +1,6 @@
 written by pie 
 
-warning: graphic depiction of violence
+warning: graphic depiction of violence, 
 
 /  ...Define Insanity
 
@@ -39,4 +39,16 @@ That's what truth feels like right?! It hurts! It hurts so he could know about i
 
 > Oh but how that feels even further away from what's really true. 
 
-This is his room where the truth lies. So, to be true to himself. He's gonna do fuck all, and sing again. He stands himself ontop of his mattress, 
+This is his room where the truth lies. So, to be true to himself. He's gonna do fuck all, and sing again. He stands himself ontop of his mattress, and warbles out noises from his throat. 
+
+This time, it's both this left and right side. **BANG BANG, BANG BANG.** One after another, they knock so abruptly, consecutively, they rudely interupt aer most truthful songs. 
+
+"Zoran, shut the fuck up!"
+
+"Shut up." 
+
+The wall to aer right groans, though doesn't seem to give him any further a chase as he'd just sigh and nothing. 
+
+> Poor siblings,, how bad that they have to bear Zoran's stupid singing at this hour.
+
+How had the outside Zoran seeped in, when he wasn't looking? What has he got to do within these precious walls of his? He'd returned to the seating on the side of his bed. So Zoran glides a hand over the metal frames of his bed, his hands clink uncomfortably against the metal, sounds that are like horrible music to his ears. His blood runs cold just like everyone else, his nerves calm down, feeling that the metal beneath his hand are also cold. 
