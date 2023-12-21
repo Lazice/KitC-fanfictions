@@ -2,6 +2,8 @@ written by pie
 
 warning: graphic depiction of violence, 
 
+tags: `Questionable Perspective Changing`
+
 /  ...Define Insanity
 
 
@@ -51,4 +53,7 @@ The wall to aer right groans, though doesn't seem to give him any further a chas
 
 > Poor siblings,, how bad that they have to bear Zoran's stupid singing at this hour.
 
-How had the outside Zoran seeped in, when he wasn't looking? What has he got to do within these precious walls of his? He'd returned to the seating on the side of his bed. So Zoran glides a hand over the metal frames of his bed, his hands clink uncomfortably against the metal, sounds that are like horrible music to his ears. His blood runs cold just like everyone else, his nerves calm down, feeling that the metal beneath his hand are also cold. 
+How had the outside Zoran seeped in, when he wasn't looking? What has he got to do within these precious walls of his? 
+
+He'd returned to the seating on the side of his bed. So Zoran glides a hand over the metal frames of his bed, his hands clink uncomfortably against the metal, sounds that are like horrible music to his ears. His blood runs cold just like everyone else, his nerves calm down, feeling that the metal beneath his hand are also cold. 
+
