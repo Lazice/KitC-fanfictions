@@ -59,16 +59,17 @@ He'd returned to the seating on the side of his bed. So Zoran glides a hand over
 
 {  `v  unreviewed`  }
 
-Buy that time, if nothing happens, then nothing happens. 
+By that time, if nothing happens, then he's ought to be just so lucky.
 
-But the thing is, something does happen. There is a knock on haer poor ssteel gate, the loud door thatwould immediately demand the attentino of everyone else in the room.And by everyone, it's ought to mean literally every entity in the room. Him, the shadows, the other people too. 
+But this poor, poorboy isn't that lucky.
+
+There is a knock on haer poor ssteel gate, the loud door thatwould immediately demand the attentino of everyone else in the room.And by everyone, it's ought to mean literally every entity in the room. Him, the shadows, the other people too. 
 
 An unfmiliar voice eminates through the steel door.
 
-"Zoran Moiras, you are called to Doctor's office. She's got a job for you." 
+"Zoran Moiras, you are called to Doctor's office. She wants you for something." 
 
-"Alright, I'm coming."  Ae's got to get out of his 'comfort zone' sometimes. This could've also been how the thoughts of poutside Zoran seeped in. Maybe ae was able to tell that mom would be calling for him! Maybe this time she will shed light on your good behaviours.
+"Alright, I'm coming."  Ae has got to get out of his 'comfort zone' sometimes. This could've also been how the thoughts of outside Zoran are seeping in. Maybe aer was able to tell that mom would be calling for him! Maybe this time she will shed light on your good behaviours.
 > Even when you know that she wouldn't, you still hope like chasing a carrot.
 
-Ae shakes aer head, his white hair spluttering on the wall beside him. Standing near the even colder steel gate, he hesitates before opening the door. As always. It's so loud, it would disuturb other people...
-
+Ae shakes aer head, his white hair slapping on the wall beside him. Standing near the even colder, steel door. He hesitates before opening it. As always. It moving are always so loud, it would disuturb other people.
