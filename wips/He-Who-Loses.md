@@ -14,18 +14,18 @@ A wise, smart man, once said to the world.
 I probably would've listened to him _if_ he wasn't such a Weird Little Math Freak. 
 ***
 
-The dome shaped glass roof of their enclosure had always seemed to be an odd choice. Curved glass, with their polished bronze frames section the roof into eights. Octogonal if one could lie down in the centre and look upwards. 
+The dome shaped roof atop their enclosure, had always seemed an odd choice. Curved glass, with polished bronze framing roof into eights. Octogonal if one could lie down in the centre and look upwards. 
 
 No one ever does it. Because there is no room in the middle that could do that. 
 
-Also because no one is really stupid enough to actually do that, because they've alll got things to do! Why do they do that? Well I would know.
+Also because no one has the time to actually do that, they've all got things to do. And the sky is scary. 've tried looking directly at it before... Well, save that conversation. Don't think you'll want to hear about that now. 
 
 The steel gate in front of aer room always sat too loud. But just the right amount of loud, to have everyone else in the room's attention on it whenever anything happens. No it's not a stark reminder. It's gentle, much gentler, as it never spoke of what happens inside here. What happens inside, is kept inside. So ae could keep being the role, that the Zoran outside had carved for aer. 
 
-There were also himself and his insides. Marked with the mistakes that lead him to this situation. Mom could always just fix him up, yes. But oh how he wouldn't want it any. 
+There were also himself and his insides. Marked with the mistakes that lead him to this situation. Mom would fix him up, yes. But he doesn't want any of that, did he. 
 
 *** 
-Zoran hums to himself as he swings his legs off from his bed. It creaks along with his charming little tunes! 
+Zoran sings a jaunty song to whomever, he swings his legs off from his bed. It creaks and sways along with his charming little tunes! 
 
 Hit. A thud sounds at his right! 
 
@@ -57,19 +57,20 @@ How had the outside Zoran seeped in, when he wasn't looking? What has he got to 
 
 He'd returned to the seating on the side of his bed. So Zoran glides a hand over the metal frames of his bed, his hands clink uncomfortably against the metal, sounds that are like horrible music to his ears. His blood runs cold just like everyone else, his nerves calm down, feeling that the metal beneath his hand are also cold. 
 
-{  `v  unreviewed`  }
-
 By that time, if nothing happens, then he's ought to be just so lucky.
 
 But this poor, poorboy isn't that lucky.
 
 There is a knock on haer poor ssteel gate, the loud door thatwould immediately demand the attentino of everyone else in the room.And by everyone, it's ought to mean literally every entity in the room. Him, the shadows, the other people too. 
 
-An unfmiliar voice eminates through the steel door.
+An unfmiliar voice, creaks in bits through the steel door.
 
-"Zoran Moiras, you are called to Doctor's office. She wants you for something." 
+"Zoran Moiras, you are called to Doctor's office." 
 
-"Alright, I'm coming."  Ae has got to get out of his 'comfort zone' sometimes. This could've also been how the thoughts of outside Zoran are seeping in. Maybe aer was able to tell that mom would be calling for him! Maybe this time she will shed light on your good behaviours.
-> Even when you know that she wouldn't, you still hope like chasing a carrot.
+"Alright, I'm coming."  In the end, ae has got to get out of his 'comfort zone' sometimes! Though that could also be the result of how the thoughts of outside Zoran are ebbing. Maybe aer was able to tell that mom would be calling for him, that would be convenient. And maybe this time she will shed light on your good behaviours.
+> Know of that as just your imagination. Even when you know that she wouldn't, you still chase hope.
 
-Ae shakes aer head, his white hair slapping on the wall beside him. Standing near the even colder, steel door. He hesitates before opening it. As always. It moving are always so loud, it would disuturb other people.
+Zoran shakes aer head, white hair interferring with the integrity of this interior design. Standing near the even colder, door. He hesitates before opening it. As always. It moving are always so loud, it would disuturb other people.
+
+It opens on its own. A slender being made of a more intricate metal looms over him, daunting, unfamiliar. It's another one of mother's subjects, though is this one in use? Ah ae presses forward, tuning to this being's body language as they seem to invite aer to walk in front of them. Ae doesn't bother to smile at them. 
+
