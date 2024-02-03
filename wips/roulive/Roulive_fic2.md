@@ -1,5 +1,6 @@
 	author's notes: 
 	Found a better way to edit this. Markup beloved. Github beloved. oh also, author me is making this readable for people not even in the fandom. <3 
+> Last updated: 4th February 2024
 ***
 
 Door opens, chattering in the long hallways. Mingling workers lurk their whispers underneath hushed breaths, lowered gazes watch Olive stride through the court's hallways. Holding his head up under their looks, the confidence as the future Diamonds' Ace in his walk. The concrete grounds lay a single path out of the castle, outside into the woods. Two wooden benches either side, day and night, their stomachs to the sky. Blurred were the wooden gates that works by a handman. 
@@ -62,4 +63,8 @@ A cateye's hatch opens up top. A familiar pair of eyes make to greet Olive, then
 
 "... I don't know, my friend please excuse my mishap this time." And Roulx bows their head at him, ever so in a plea. 
 
-Olive himself stands present in front of Roulx, the gateman's gaze looks over him and 
+Olive himself stands present in front of Roulx, the gateman's gaze looks over him and ponders for,
+
+That he takes a step forward after all, a sort of venom in his tone. “Respectfully. Would you care enough to not misgender my friend here? I believe that you are only humiliating yourself in doing so.    Now please, let them through.” 
+
+The gateman is, taken back by that sharp response from what looked to be two polite gentlemen. ß
