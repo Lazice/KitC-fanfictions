@@ -69,7 +69,11 @@ Enough monologuing, I would suppose that you've seen enough to know without me g
 
 He awakes with not his kidney missing. No, he now jokingly doubts that he had them in the first place, being a boy of toy afterall. With even all the knowledge that anyone else around him, still strives to get more (successfully so even).
 
-Not really. He is still in the same room as when he'd went to sleep.  
+Not really. He is still in the same room as when he'd went to sleep. On the same bedding that hurts much more than the visions in his dreams. Zoran questions for why she'd removed part of memories for him, but not the part where she would hurt him. He sits up, his body's moving seem to creak. It is more a confused feeling albeit, nothing more. 
+
+Technically repaired, he ignores the jars of something seemingly looking down at where he once laid. Getting to the floor, and wrapping and buttoning up his clothes. He goes to stray outside that now dormant operating room.
+
+It's a familiar hallway that grants no comfort. 
 
 ### Deleted scenes.
 
@@ -84,4 +88,4 @@ And it gives you some kinds shivers that one cannot realise without organs. Who 
 What day was it? Ah, right. 
 
 It's Wednesday 14th, you've been meandering down the rivers near its dark waters for two days. 
-It's not cold. Though you'd expect 
+It's not cold. Even though you'd expected something in that sense. 
