@@ -71,9 +71,16 @@ He awakes with not his kidney missing. No, he now jokingly doubts that he had th
 
 Not really. He is still in the same room as when he'd went to sleep. On the same bedding that hurts much more than the visions in his dreams. Zoran questions for why she'd removed part of memories for him, but not the part where she would hurt him. He sits up, his body's moving seem to creak. It is more a confused feeling albeit, nothing more. 
 
-Technically repaired, he ignores the jars of something seemingly looking down at where he once laid. Getting to the floor, and wrapping and buttoning up his clothes. He goes to stray outside that now dormant operating room.
+Technically repaired, he ignores the jars of something seemingly looking down at where he once laid. Getting to the floor, and wrapping and buttoning up his clothes. He turns off the lights, and leaves to stray outside that now dormant operating room.
 
 It's a familiar hallway that grants no comfort. 
+
+Sounds of his step transitions from the soft half latex-plastic tacky floor-covering, to the now clinking stiffness of the hard glossy tiles beneath his feet. The lights are dim outside, in their nightly powersaving mode, the red light blinking careful, casting a crimson shadow shape of his mis-shapen suit and self to the floor. One where when he looks, he notices another figure to his right. Leaned against the door and her arms crossed in front of her chest, not hard to recognise a figure too familiar in visions more than memories. 
+
+She stares at Zoran cold, questioning; her smallest movements of lifting her chin to feign confidence. 
+"What?" 
+Her voice is different. Not *different* different, her voice was still her voice, the same texture of sounds. But, it isn't the one which he'd spied on times before behind mirrors and windows, one more chirpy and willing. Cold? And he knows why, and he wants to comfort her. By him, comfort her unfortunate frozen up soul in a place already too cold.  
+"Why are you here Luci?" And aer grin was too crooked, his hands too cold against himself. 
 
 ### Deleted scenes.
 
