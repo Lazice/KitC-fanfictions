@@ -95,8 +95,7 @@ He brushes his fingers through his hair, trying to find some semblance of comfor
 
 .
 
-He's standing in the middle room of the Hearts Tower. There are boxes with fingerprints on their clear tape seals, the ringing in his hearing spring down the brick and paint halls, dry stalls and pried locks. The place seems much more desolate than 
-
+He's standing in the middle room of the Hearts Tower. There are boxes with fingerprints on their clear tape seals, the ringing in his hearing spring down the brick and paint halls, dry stalls and pried locks. Well, no. It's 
 ### Deleted scenes.
 
 You do not awake.
