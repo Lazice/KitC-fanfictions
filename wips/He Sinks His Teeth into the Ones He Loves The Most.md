@@ -78,9 +78,24 @@ It's a familiar hallway that grants no comfort.
 Sounds of his step transitions from the soft half latex-plastic tacky floor-covering, to the now clinking stiffness of the hard glossy tiles beneath his feet. The lights are dim outside, in their nightly powersaving mode, the red light blinking careful, casting a crimson shadow shape of his mis-shapen suit and self to the floor. One where when he looks, he notices another figure to his right. Leaned against the door and her arms crossed in front of her chest, not hard to recognise a figure too familiar in visions more than memories. 
 
 She stares at Zoran cold, questioning; her smallest movements of lifting her chin to feign confidence. 
+
 "What?" 
+
 Her voice is different. Not *different* different, her voice was still her voice, the same texture of sounds. But, it isn't the one which he'd spied on times before behind mirrors and windows, one more chirpy and willing. Cold? And he knows why, and he wants to comfort her. By him, comfort her unfortunate frozen up soul in a place already too cold.  
+
 "Why are you here Luci?" And aer grin was too crooked, his hands too cold against himself. 
+
+"Why can't I?" She smiles back.
+
+There's a time where ae would simply smile and skip away, waving Luci away in that same jolly prance as if ae expects Luci to chase aer. So why is he still not moving? 
+
+Luci tilts her head to the side, glancing to the wall behind him. "Nothing. That's alright." Ah, she walks away. So Zoran was the one dumbfounded in front of Luci, of course he is. He was scratching at the inside of his collars when he watched Luci walk away without any explaination. 
+
+He brushes his fingers through his hair, trying to find some semblance of comfort in that static touch, buzzing in bare fresh seal just under his skull. He walk after where her place left a trace of shadow in still this darkness. He wants to figure out what had gone wrong, he's so scared of wanting to know what had gone wrong, it, he's afraid that what was wrong was him. And he feels like that would be unavoidable and he wants to try for it to not be and he wants it to be okay and he wants.
+
+.
+
+He's standing in the middle room of the Hearts Tower. There are boxes with fingerprints on their clear tape seals, the ringing in his hearing spring down the brick and paint halls, dry stalls and pried locks. The place seems much more desolate than 
 
 ### Deleted scenes.
 
