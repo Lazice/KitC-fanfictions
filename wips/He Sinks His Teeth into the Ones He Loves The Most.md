@@ -99,7 +99,8 @@ He's standing in the middle room of the Hearts Tower. There are boxes with finge
 
 Zoran looks around the space, where there sat beds and spokes of harsh intimacy, laid only a shape of couch and bedding. He can tell this time, it's vividly his neck hurting, the cervical spinal cord 3 that rests out at the back of Zoran's neck. In an almost awkward position, he scratches at the back of his neck, glancing to each the previously been furniture. Where there's left, are simply layered, silhouetted dust ground. Aer feet kicks, making dust clouds and trailing his shoes through them. 
 
-   
+The light shining softly from even the tape and mirrors stuck to the wall with nails and knife marks, he doesn't look too close. Even if he knows that no one else. Is. In here.
+
 ### Deleted scenes.
 
 You do not awake.
