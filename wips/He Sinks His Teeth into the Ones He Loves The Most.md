@@ -99,7 +99,17 @@ He's standing in the middle room of the Hearts Tower. There are boxes with finge
 
 Zoran looks around the space, where there sat beds and spokes of harsh intimacy, laid only a shape of couch and bedding. He can tell this time, it's vividly his neck hurting, the cervical spinal cord 3 that rests out at the back of Zoran's neck. In an almost awkward position, he scratches at the back of his neck, glancing to each the previously been furniture. Where there's left, are simply layered, silhouetted dust ground. Aer feet kicks, making dust clouds and trailing his shoes through them. 
 
-The light shining softly from even the tape and mirrors stuck to the wall with nails and knife marks, he doesn't look too close. Even if he knows that no one else. Is. In here.
+The light shining softly from even the tape and mirrors stuck to the wall with nails and knife marks, he doesn't look too close. Even if he knows that no one else. Is. In here. 
+
+He stands there with his back towards the glow, what casts over his face is less neutrality, shadows that bound him back here for reasons that are seemingly in his control. Sure, he came back here on his own will, to investigate just what happened. But what he finds, answer barely any of the questions. 
+
+It's like the previous residents within this castle had all simply, moved out. The royals' rooms above are deserted more than the Guestrooms where the other ace candidates had lie (verb(verb)). Wading through the darker rooms after rooms, ae gazed through the mirrors and watched behind aer back. Emptiness shrouded all corners, but not loneliness. No. There's the bleached wood that's been walked over so many times before, the fingerprints and trash that belonged to someone so personal. He watched at each the evidence that float to his vision, colourful and the colourless else, and so different were them to him (outsider).
+
+Not leaving imprints in such a tender environment is impossible, even if you're god. So he simply took what he wanted (evidence) and left little trace (that he's sure no one else would ever find). 
+
+.
+
+
 
 ### Deleted scenes.
 
