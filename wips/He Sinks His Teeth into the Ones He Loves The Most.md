@@ -100,11 +100,12 @@ Zoran looks around the space, where there sat beds and spokes of harsh intimacy,
 
 The light shining softly from even the tape and mirrors stuck to the wall with nails and knife marks, he doesn't look too close. Even if he knows that no one else. Is. In here.
 
-He stands there with his back towards the glow, what casts over his face is less neutrality, shadows that bound him here again for reasons that are seemingly in his control. Sure, this time he came back here on his own will, to investigate just what happened. But what he finds, answer barely any of the questions.
+With his back towards the glow, what casts over his face is less neutrality, shadows that bound him here again for reasons that are seemingly in his control. Sure, this time he came back here on his own will, to investigate just what happened. But what he finds, answer barely any of the questions.
 
 It's like the previous residents within this castle had all simply, moved out. The royals' rooms above are deserted more than the Guestrooms where the other ace candidates had lie (verb(verb)). Wading through the darker rooms after rooms, ae gazed through the mirrors and watched behind aer. Emptiness shrouded all corners, but not loneliness. No. There's the bleached wood that's been walked over so many times before, the fingerprints and trash that belonged to someone so personal. He watched at each the evidence that float to his vision, colourful and the colourless else, and so different were them to him (outsider).
 
-Not leaving imprints in such a tender environment is impossible, even if you're god. So he simply took what he wanted (evidence) and left little trace (that he's sure no one else would ever find).
+Not leaving any imprints of his own, in such a tender environment is impossible. Even if you're god(and it seems like even the gods have left here). So he simply took what he wanted(evidence) and left little trace (that he's sure no one else would find). Enough to take, a small layer of dust blown up by his movement had gathered on himself as well. 
+
 
 .
 
@@ -124,3 +125,6 @@ What day was it? Ah, right.
 
 It's Wednesday 14th, you've been meandering down the rivers near its dark waters for two days. 
 It's not cold. Even though you'd expected something in that sense. 
+.
+
+Not leaving imprints in such a tender environment is impossible, even if you're god. So he simply took what he wanted (evidence) and left little trace (that he's sure no one else would ever find).
