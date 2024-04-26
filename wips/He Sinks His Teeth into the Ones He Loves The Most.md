@@ -1,6 +1,6 @@
 # He Sinks His Teeth into the Ones He Loves The Most
 
-  `Rapid POV switching.`  `questionable past/present/future tense use.`  
+  `Rapid POV switching.`  `questionable past/present/future tense use.`  `I am making everything the fuck up` 
 
 Leaking from above his skull, the impact bled silver, trailing down his head; spiking, and foggy that made his vision. The stars that ae saw, smelt like the atmosphere they would be (theoretically) surrounded by, it's aer blood after all. One that ae's grown familiar to too long ago, for far too long. 
 
@@ -106,6 +106,19 @@ It's like the previous residents within this castle had all simply, moved out. T
 
 Not leaving any imprints of his own, in such a tender environment is impossible. Even if you're god(and it seems like even the gods have left here). So he simply took what he wanted(evidence) and left little trace (that he's sure no one else would find). Enough to take, a small layer of dust blown up by his movement had gathered on himself as well. 
 
+Wtihin his haze of passing thoughts, one mocked aer behaviour, leering for whether what he's doing is worth it for what it's expected to be. To see a reasoning to Luci, and why... She came back. Well, it fits him then. Nothing of worth so. Maybe this is some kind of playful salvage something together from what ae remembers, for however long that place had sat dorment and ae'd simply watched from behind windows.
+
+A theatrical mock of symbolica card laid within the kings' rooms. Each the king of each suit. He simply gathered them from where they'd sat when he'd came in for, placing them as care-off,-hand into aer pockets. 
+
+Unknowing to aer, the one the diamond king, swept away like the wind out amongst the time he'd leave the place with supposedly everything that ae needed. He doesn't need him anyways. The others complain about none. Too because they can't.
+
+Ae return home, with less of the same dread as when ae'd returned home with nothing much of the days when he's scared. When he came back, a scarlet hue wavered around him which he'd waved away too goes winds. 
+
+Grows that a small part of him expected for aer mother to comment on his, something. The thought of that, even if as expected negative, squeezes in a warm sort of affection in aer. One fantasy he rides off of tone tongue around his steps so gile. Where it lurked and warmed a bit of the coldness, he'd find a table amongst the mess to place down more to the mess. 
+
+Most which, was something for aer in desperate to gather, keep hopelessly safe somehow here. It's as if this place is anymore safe than even just the outdoors, just a different kind then.
+
+Ae splayed out the items on the table, beginning to construct some sort of story within it all... Some... Some kind...
 
 .
 
