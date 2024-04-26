@@ -56,7 +56,7 @@ Through the haze, he was operated on. It's hard not to empathize with the price 
 
 A ticking clock, previously unnoticed by the two patients in this room.
 
-Yes the patient number grew,, involuntary of the doctor's will. However, it is more effective currently for me to finish with this current subject. She would prove to be give more value than the one on the ground. Besides, Luci really have outdone herself out there. For that time, acquired herself another partner, a partner of even a stranger physique. O-07831 with their well developed combat abilities. The scar on my wrist was a decent mark of his now capabilities.
+Yes the patient number grew,, involuntary of the doctor's will. However, it is more effective currently for me to finish with this current subject. She would prove to be give more value than the one on the ground. Luci really have outdone herself out there. For that time, acquired herself another partner, a partner of even a stranger physique. O-07831 with their well developed combat abilities. The scar on my wrist was a decent mark of his now capabilities.
 
 She hummed as her hammer-tapped the binding staples to the ceramic pieces, affixed onto Luci's pre-existing body parts. Her face, still patchy with the beauty of stained glass and her crackling and blood.
 
@@ -119,6 +119,26 @@ Grows that a small part of him expected for aer mother to comment on his, someth
 Most which, was something for aer in desperate to gather, keep hopelessly safe somehow here. It's as if this place is anymore safe than even just the outdoors, just a different kind then.
 
 Ae splayed out the items on the table, beginning to construct some sort of story within it all... Some... Some kind...
+
+... Chapter 2.
+
+> begin 27th April 2024
+
+The morning came and Cecilia is pondering about the tools and hands that she has under her hands. If with the theories that she already knows at hand, what would be a more interesting approach to dealing with the current environmental structure she lives under? 
+
+Leading their noses around like cattle and sheep, have grown tedious. Where the beauty of evolution came to bloom in result of her letting them go wild again. With restraints of course. She is yet still recording the results of this action afterall, sensors and reports coming in as fresh as it is sweet. 
+
+A capsule of cold brewed coffee is chewed and bitter against her posterior third. Her own hands aren't the coldest to work with the tools, lacking the shakiness that would've negated her some part of work. Though there's no desire on that view of such small change, where dictated by human logistics would've been some form of gratitude to these the most minute things. Some sort of prayer to one or a couple gods. 
+
+Theologies; the way that people make sense of the world around them. It can be an interesting subject, if she wanted to pick that back up. 
+
+Not as of late, not as of later either. 
+
+There isn't much of a wardrobe, rather there's clothing hangers wherever she finds the most convenient to put. To nothing that guides, not a plan of touch. Pulling a brown coat over her shoulders, she brushes her streaked hair out, over her coat and ties it up with a pen she found in one of the pockets. 
+
+It's snowing outside. 
+
+One makes sure to shiver at the cold. It is though warmer behind her, the door she closed just moments ago shakes again in her replay. Her what-was warm hands ought to get colder in this weather without gloves. Her knuckles wrinkled, the same tone of skin as the brownstones neighbours she hide in with. 
 
 .
 
