@@ -154,7 +154,9 @@ Luci finds the dawn coming with no orders from her mother. It's an immediate kno
 
 (totally not because i don't know what to put them through.) 
 
-Simply, she sets herself off of her wait. Ticking are the time that she has before something is not done. She finds the trouble that they can't truly 
+Simply, she sets herself off of her wait. Ticking are the time that she has before something is not done. She finds the trouble that they(her and) can't truly ever be at rest, though neither does she need to. Incessant ticking time  should be something that she can be habituated to... 
+
+No longer a need for the timeliness of her response.  
 
 .
 
