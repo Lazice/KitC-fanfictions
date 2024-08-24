@@ -154,12 +154,19 @@ Luci finds the dawn coming with no orders from her mother. It's an immediate kno
 
 (totally not because i don't know what to put them through.) 
 
-Simply, she sets herself off of her wait. Ticking are the time that she has before something is not done. She finds the trouble that they(her and) can't truly ever be at rest, though neither does she need to. Incessant ticking time  should be something that she can be habituated to... 
+Simply, she sets herself off of her wait. Ticking are the time that she has before something is not done. She finds the trouble that they(her and) can't truly ever be at rest, though neither does she need to. The incessant ticking that is change going by her *should* be something that she can be habituated to... 
 
-No longer a need for the timeliness of her response.  
+No longer a need for the timeliness of her response. 
+
+...
+
+She should adapt.
 
 .
 
+There is a sky beyond the sky that they know. 
+They know there is another sky beyond their own that they know. 
+One only has to seek for it, and that is the difference between one to the other -- To continuously seek for a sky that you can't ever see or sense, until you find it. Or to enjoy the very pair that is your own? 
 
 
 ### Deleted scenes.
