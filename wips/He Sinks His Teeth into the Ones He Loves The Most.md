@@ -126,19 +126,19 @@ Ae splayed out the items on the table, beginning to construct some sort of story
 
 The morning came and Cecilia is pondering about the tools and hands that she has under her hands. If with the theories that she already knows at hand, what would be a more interesting approach to dealing with the current environmental structure she lives under? 
 
-Leading their noses around like cattle and sheep, have grown tedious. Where the beauty of evolution came to bloom in result of her letting them go wild again. With restraints of course. She is yet still recording the results of this action afterall, sensors and reports coming in as fresh as it is sweet. 
+Leading their noses around like cattle and sheep, have grown tedious. Where the beauty of life came to bloom in result of her letting them go wild again. With restraints of course. She is yet still recording the results of this action afterall, sensors and reports coming in as fresh as it is sweet. 
 
-A capsule of cold brewed coffee is chewed and bitter against her posterior third. Her own hands aren't the coldest to work with the tools, lacking the shakiness that would've negated her some part of work. Though there's no desire on that view of such small change, where dictated by human logistics would've been some form of gratitude to these the most minute things. Some sort of prayer to one or a couple gods. 
+A capsule of cold brewed coffee is chewed and bitter against her posterior third. Her own hands aren't the coldest to work with the tools, lacking the shakiness that would've partially excused of work. Though there's no desire towards that view of such small change, where dictated by human logistics would've been some form of gratitude to these the most minute things. Some sort of prayer to one or a couple gods. 
 
-Theologies; the way that people make sense of the world around them. It can be an interesting subject, if she wanted to pick that back up. 
+Theologies; the way that humans make sense of the world around them. It can be an interesting subject, if she wanted to pick that back up. 
 
-Not as of late, not as of later either. 
+Not as of late, not of later either. 
 
-There isn't much of a wardrobe, rather there's clothing hangers wherever she finds the most convenient to put. To nothing that guides, not a plan of touch. Pulling a brown coat over her shoulders, she brushes her streaked hair out, over her coat and ties it up with a pen she found in one of the pockets. 
+There isn't much of a wardrobe, rather there's clothing hangers wherever she finds the most convenient to place. To nothing that guides, not a plan of touch. Pulling a brown coat over her shoulders; she brushes her streaked curly hair out; over her coat and tie it up with a pen she found in one of the pockets.
 
 It's snowing outside. 
 
-One makes sure to shiver at the cold. It is though warmer behind her, the door she closed just moments ago shakes again in her replay. Her what-was warm hands ought to get colder in this weather without gloves. Her knuckles wrinkled, the same tone of skin as the brownstones neighbours she hide in with. Crows chirp - or had they cawwed as a murder flies over her head (carbon monoxide). 
+One makes sure to shiver at the cold. It is though warmer behind her, the door she closed just moments ago shakes again in her replay. Her what-was warm hands ought to get colder in this weather without gloves. Her knuckles wrinkled, the same tone of skin as the brownstones neighbours she hide in with. Crows chirp – or had they cawwed, as a murder flies over her head (carbon monoxide). She shuts the door behind herself.
 
 There's little here that the people don't care about. They'd worry about the weather tomorrow, whether the snow on their roof would damage their lawns. Or somethings that are even out of their own control. Like whether that little timmy next door will graduate a university, bless home wealth and benefit them all, daydream about a much more prosperous time. It's a small run down that doesn't give much oppotunities for those born within. 
 
@@ -156,18 +156,52 @@ Luci finds the dawn coming with no orders from her mother. It's an immediate kno
 
 Simply, she sets herself off of her wait. Ticking are the time that she has before something is not done. She finds the trouble that they(her and) can't truly ever be at rest, though neither does she need to. The incessant ticking that is change going by her *should* be something that she can be habituated to... 
 
-No longer a need for the timeliness of her response. 
+No longer a need for the timeliness of her response.
 
-...
+Yes, that she knows...
 
 She should adapt.
 
-.
+...
+
+Of course she recognised those metal doors, with her heart that'd skipped first, one that was here far before her own mind in her body. The sensation is disturbing, but no part of her mind to twist it back to disgust.
+
+-
 
 There is a sky beyond the sky that they know. 
-They know there is another sky beyond their own that they know. 
-One only has to seek for it, and that is the difference between one to the other -- To continuously seek for a sky that you can't ever see or sense, until you find it. Or to enjoy the very pair that is your own? 
 
+They know there is another sky beyond their own that they know.
+
+One only has to seek for it, and that is the difference between one to the other -- To continuously seek for a sky that you can't ever see or sense, until you find it. Or to enjoy the very one that is your own? 
+
+It's up to them. How they'd prefer. To bide their times with menial aspirations or to hold up to their potential, to so at their frugal time to attain from the grasps of life, the effort they have to make, is ultimately up to them. Consider it anymore, their current privileges have already been made thorough, everyone who'd seen them would know – the creations they'd made of themselves.
+
+They need no evidence of their own achievements to be anymore than the ones they'd aspire to be. 
+
+-
+
+The wood grain of the deck of this balcony seems a little too messy to be straight from cut logs. Wooden ham, perhaps. If there were wood makers that could create a plank that weren't unlike this. He doesn't quite know how to think about this, rather, just staring because he just wants a break from the moment right now. 
+
+The stardom of being permittedly free for more than he typically was, admittedly was starting to wear off. The stains of spattering rain drops on his sleeves, which ae had simply smudged against a tree's bark, the splinters that bore into the threads and just won't come out. Zoran's nails too sharp and ae can't bother to force too much force, rip apart his sleeves trying to pluck out every  single soft brown shards of organic. 
+
+Whichever. The bark will wear out its own liveliness out when ae traverses the necessary path back through the veil. ... Though they're just tree barks anyways. 
+
+Zoran squints at the floor, kneeled like they're looking for bugs with the worst eyes and an overcast weather, slightly dragging aer finger across the grain. The resounding lack thereof from the grinding is pleasant. Far more so if it was snow beneath aer boots, the crunch, a step in the right direction and ae could feel them sink underneath. 
+
+There's some back home, ae *could* have some if ae really wanted to. But ae isn't like the subjects on her tablets, the records and files that'd told of little critters with a scp(supercooling point) of 218 kelvin! Not for aer bones with blood, very much aer own, liquid and something else, crystals already in there that he does not want *not* sloshing around.   
+
+A light wind bellows against his ears. It tickles, playing tricks with his senses as he's still in some room right now– 
+
+Ah of course, the Diamonds' not bedroom. The horizontal bright red stripe huddled near the ceiling, that rounds this room spanning the wall. Creases in the wall paper, and what looks like strikes into it by a cis man. A cowardly one also. Stopped just thrice in and smoothed over the edges of his hits.  
+
+By the beige and pale. The couches were haphazardly pushed against the wall. There's a coffee machine that is still plugged into the socket, one must wonder if it still has electricity! But it's not like he hasn't been turning on the lights to look about, there is still electricity. 
+
+Nonetheless, he checks, that tells him very much! It does still have electricity as some dull brown comes out and drips to the catcher. He looks around for mugs, cups. There's a rack by the otherside, besides the sink. The mugs also have a layer of dust on them. Ae takes the one that has a 3 handle, and a silly graphic on the front, a grey infinity sign and the words "*The Universe will always be with us!*" cutting through it. Despite how interesting it may be, the time that he took to read it has the coffee machine liquid overflowing out the catcher and onto the table, dripping steadily to the floor, still buzzing with coffee making noises, the coffee grounds in it used and old. 
+
+Mug quickly put underneath the spout, the dust about it wiped away with aer scarf on aer way when scampering back. Ah... 
+The floors are staining. The wood already soaking up the coffee like it's the first thing it's drank in years other than polish and wax. Time wears somethings down, including the bounds of their, and the carols they would sing as Zoran steps over them once again. 
+
+Creaky little things... 
 
 ### Deleted scenes.
 
