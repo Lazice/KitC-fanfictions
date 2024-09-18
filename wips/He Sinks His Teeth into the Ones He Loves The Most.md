@@ -202,6 +202,7 @@ Mug quickly put underneath the spout, the dust about it wiped away with aer scar
 The floors are staining. The wood already soaking up the coffee like it's the first thing it's drank in years other than polish and wax. Time wears somethings down, including the bounds of their, and the carols they would sing as Zoran steps over them once again. 
 
 Creaky little things... 
+Not their fault for existing, they were only manufactured to turn out this way and it's the best that they could want to be anyw- Stop, stop, stop. Think something else. 
 
 ### Deleted scenes.
 
