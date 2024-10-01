@@ -67,4 +67,14 @@ Olive himself stands present in front of Roulx, the gateman's gaze looks over hi
 
 That he takes a step forward after all, a sort of venom in his tone. “Respectfully. Would you care enough to not misgender my friend here? I believe that you are only humiliating yourself in doing so.    Now please, let them through.” 
 
-The gateman is, taken back by that sharp response from what looked to be two polite gentlemen. ß
+The gateman is, taken back by that sharp response from what looked to be two polite gentlemen. Nothing else but to performs his obligation. Leaving the window hatch snapping down their gazes, following by the sound of the turning of the knob of the door. 
+
+When Roulx looks back at Olive for the order of procedure, Olive is looking back at kime, for presumably the same expectant step forwards. Whilst ki wills kimself to initiate either a profile of honest politeness to accompany the person ki stands in front of. The person ki's internally trying for, steps forwards, to the door and looks back to kime again, their gaze which landed calmly. 
+
+They're waiting for kime. They(r) doesn't stop.
+
+
+
+The look of the person in white is one of questioning, staring back with its pale blue eyes, tilting their head and stepping forwards to him. 
+
+"Well?" Some the mild tenses of adrenaline wants Olive to hold their hand out to Roulx, lead them as if Olive was a 
