@@ -1,50 +1,53 @@
 # He Sinks His Teeth into the Ones He Loves The Most
 
-  `Rapid POV switching.`  `questionable past/present/future tense use.`  `I am making everything the fuck up` 
+  kind of rapid POV switching.  really questionable past/present/future tense use.  I am making everything the fuck up 
 
-Leaking from above his skull, the impact bled silver, trailing down his head; spiking, and foggy that made his vision. The stars that ae saw, smelt like the atmosphere they would be (theoretically) surrounded by, it's aer blood after all. One that ae's grown familiar to too long ago, for far too long. 
+Leaking from above his skull, the impact bled, silver trailing down his head; spiking, the sharp fog that made up his vision. The stars that ae saw, smelt like the atmosphere they would be (theoretically) surrounded by, it's aer blood after all. One that ae's grown familiar to too long ago, for far too long. 
 
 Ae wonders, walking down another recently known maze, the veil has grown from mycelial, parasitical. Closing his eyes. The writhing holy, scent speaks to aer skin, as if ae had a true human skin that tightened. This disgusting assume that painted themselves unique to each path. Zoran follows the one he's well acquainted with. That most painful; that(,) he knew. Not because it is the most horrible, but for how much it is personal.
 
-\-
+-
 
-They gave no acknowledgement to him when he came back to this cold environment. Same arrangement of rooms and halls, that only gave guessing room to those, that'd never return.
+They gave no acknowledgement to him when he came back to this ecosystem. Same arrangement of work cells and grey ceilings, same ones that gave only guessing room to victims that'd never return.
 
-The Doctor raised an alert gaze to his intrusion, the wrong door, but it was the one closest for aer. She'd only frown, returning to operate at the seeming bloody mess that laid on the operating desk, while jars of red and black surrounded them. This mess, irked him. Growing, his head in a daze, the blood entering carelessly into his squinted eyes, unable to identify whom, or what, or where, the person that laid on the operating table.
+The Doctor raised an alert gaze to his intrusion. He had entered through the wrong door, but it just the one closest for aer to access. She'd only frown, returning to operate at the seeming bloody mess that laid on the operating desk, while jars of red and black surrounded them. This mess, irked him. Growing, his head in a daze, the blood entering carelessly into his squinted eyes, unable to identify whom, or what, or where, the person that laid on the operating table.
 
-\-
+-
 
-She awoke. The bright operating lights shining down on her, at this moment, she knows she shouldn't move. Well really, she couldn't move.
+The subject on her familiar silver platter wakes. 
 
-"Stay now, stay still." Her voice commanded like a curse to her, she stilled more silent that her heart would even cease. Every machination in her that churned stilled to a halt, all which recognised their creator. She kept her gaze to the light, they that burnt in her retinas as the posite glow, whenever her eyes gave up and flicked to the darkness. She couldn't feel anything beneath her neck, assuming the worst.
+Bright operating lights shining down upon her, at this moment, she knew her duty, a simple one at that: do not move. 
+Well, really, she couldn't move.
 
-But she could hear, as the engineer's hands stilled for a moment, and the fumbling of distraught shoes clacked into the room. She looked over, unmoving in every part except her eyeballs. Out of the corner of her vision, there a figure with white hair and purple lurched over and clattered to the ground. In her calculations, she would feel bad for this instance, perhaps panic and tell her surgeon to assist the person that has just collapsed in this very room.
+"Stay still." The Doctor's voice rung the room like a curse to her. Luci was unknowingly writhing in her confines. Put now to light, she stilled in more silence, silence that her heart wished to cease. Every other machination in her that churned, stilled to a halt, all which recognised their creator's work. She kept her gaze to the light, they that burnt in her retinas as the posite glow, whenever her eyes gave up and flicked to the darkness. She couldn't feel anything beneath her neck, assuming the worst.
+
+But she could hear, as the hands stilled for a moment, and the fumbling of distraught shoes clacked into the room. She looked over, unmoving in every part but her eyes. Out of the corner of her vision, there a figure in white and purple, lurched over and clattered like a puppet cut from his strings to the ground. In her calculations, she would feel bad for this instance, perhaps panic and tell her surgeon to assist the person that has just collapsed in this very room.
 
 "He'll live."
 
 Luci, doesn't move.
 
-Dr Moiras, doesn't move. Except  to her subject, quickly continuing with her clattering, picking up and putting down her metallic instruments, sewing and tinkering with her body, her organs. Luci couldn't fear, that trait is far too useless in this place. Her *own* instruments currently out of touch and out of control. The false safety this sanctity of a metal bed gives her, is temporary, is juvenile.
+Dr Moiras, doesn't move. Except to her subject, quickly continuing with her clattering, picking up and putting down her metallic instruments, tinkering with her body, her self, her organs. Luci couldn't fear, that trait is far too useless in this place. Her own instruments currently out of touch and out of control. The false safety this sanctity of a metal bed gives her, is temporary, is juvenile.
 
-The smell of ozone, a stench in the air that seemed to have grown somehow, more pungent with the particular strain that her little not-friend has intruded in with. He laid there, staining an already contaminated vinyl floor. Aer mother hummed as she operated on someone else.
+The smell of ozone, a stench in the air that seemed to have grown, somehow even more pungent with the particular strain that her little not-friend has intruded in with. He laid there, staining an already contaminated vinyl floor. Aer mother hummed as she operated on someone else.
 
-\-
+-
 
-A sharp pinning pain, he's restrained to the operating table. Where the force by futile struggling pulled at the metal bindings. His perpetrator, using the most effective step, one her cold gloved hand clutched around his neck. More of a threat to his nerves as his scream came unheard by the cold realisation.
+A sharp, unmovable pain. Zoran is restrained to the operating table, where forces made by his futile struggles pulled at the metal bindings. His perpetrator, utilised the most effective step, one her cold gloved hand clutched around his neck. More of a threat to his nerves as his scream came unheard by the cold realisation.
 
-"The cost of anaesthetics are heavy in resource, I'm sure you'll keep quiet with the amount of experience you have, won't you?"
+"The cost of anaesthetics are a lot, I'm sure you can keep quiet, won't you?"
 
 That gave aer the forewarning, that didn't stop the future from happening. As without a response in time, ae felt the scalpel cut through the cheap strings that held his neck to the rest of his body. His doctor caressed his head as he watched as she held it up to the light, and felt. The wires that hung loose out of his neck cavity, they that stretched and curled around each other. Worthless little contraptions that worked like wonder and purpose on those that weren't him.
 
-He felt the tapping on his skull, cold liquid flowed out of the wound. All too close to his own other sensors. Having learnt many times from the times before, but this time, she stayed silent. The Doctor laid her gaze at the fractals made from the impact wound.
+He felt tapping against his skull, cold liquid belonging to him trickled needlessly out of the wound. All too close to his own other sensors. Having learnt many times from the times before, but this time, she stayed silent. The Doctor laid her gaze at the fractals made from the impact wound.
 
-"Are you finding anything mom?" He asks, the room is no colder than he remembered.
+"Are you finding anything mom?" He asks, this room doesn't feel colder than he remembers.
 
-"No, I won't. Do you want me to find anything then?"
+"No, I won't." She stills her instruments. "Do you want me to find anything then?" 
 
-"... Probably." Even Zoran questioned what he wanted to say. He thought about whether it was something else rather than this. Wouldn't he know, it was just his mom's work job, for,, whatever. Besides, it always ends in the end. It all ends with something of his being lost. But always, he'll be good again. That is his mom after all.
+"... ...Probably." Even Zoran questioned what he wanted to say. He thought about whether it was something else rather than this. Wouldn't he know, it was just his mom's work job, for,, whatever. Besides, it always ends in the end. It all ends with something of his being lost. But always, he'll be good again. That is his mom after all.
 
-Dr Moiras worked her way through. Modifying the flesh of other organisms ae'd probably helped to bring here, nowadays she has more efficient workers for this duty. But, ae guessed that it's probably due to the time that aer mom had spent on him, that effort, that she hasn't left him yet... Darkening over, maybe it's something fearful, in the fragments that she had bestowed in an amalgamation to him. Something, it's something over him. Something within him, a hole having ebbed away at his future.
+Dr Moiras worked her way through everything; modifying the flesh of other organisms ae'd probably helped to bring here. Nowadays she has more efficient workers for this duty, but, ae guessed that it's probably due to the time that aer mom had spent on him, that effort, that she hasn't left him yet... Darkening over, maybe it's something fearful, in the fragments that she had bestowed in an amalgamation to him. Something, it's something over him. Something within him, a hole having ebbed away at his future.
 
 These unfamiliar pieces, stored in their dark jars and vials. Most of them labelled with names, few he now recognise. Horrible with the name that's corruption, or one that reminds him of that, sinks into his view, his vision still blurred and speckled by the contamination.
 
@@ -52,7 +55,7 @@ These unfamiliar pieces, stored in their dark jars and vials. Most of them label
 
 Through the haze, he was operated on. It's hard not to empathize with the price being paid, Whose body parts are they... 
 
-\-
+-
 
 A ticking clock, previously unnoticed by the two patients in this room.
 
@@ -64,31 +67,29 @@ Really, this isn't a great time to have two important units injured. Not that Zo
 
 Enough monologuing, I would suppose that you've seen enough to know without me going through everything again. Let's make this easier.
 
-\-
+-
 
-He awakes with not his kidney missing. No, he now jokingly doubts that he had them in the first place, being a boy of toy afterall. With even all the knowledge that anyone else around him, still strives to get more (successfully so even).
+He awakes with not his kidney missing. No, he jokingly doubts that he had them in the first place, being a, him, afterall. With even all the knowledge that anyone else around him, still strives to get more (successfully so).
 
-Not really. He is still in the same room as when he'd went to sleep. On the same bedding that hurts much more than the visions in his dreams. Zoran questions for why she'd removed part of memories for him, but not the part where she would hurt him. He sits up, his body's moving seem to creak. It is more a confused feeling albeit, nothing more.
-
-Technically repaired, he ignores the jars of something seemingly looking down at where he once laid. Getting to the floor, and wrapping and buttoning up his clothes. He turns off the lights, and leaves to stray outside that now dormant operating room.
+Not really. He is still in the same room as when he'd went to sleep. On the same bedding that hurts so much more, than his visions or his dreams. Zoran questions for why she didn't removed part of memories for him, but not the part where she would hurt him, it is habit, it is known. He sits up, his body's moving seem to creak. It is more a confused feeling albeit, nothing more. Technically repaired, he ignores the jars of something seemingly looking down at where he once laid. Getting to the floor, and wrapping and buttoning up his clothes. He turns off the lights, and leaves to stray outside that now dormant operating room.
 
 It's a familiar hallway that grants no comfort.
 
-Sounds of his step transitions from the soft half latex-plastic tacky floor-covering, to the now clinking stiffness of the hard glossy tiles beneath his feet. The lights are dim outside, in their nightly powersaving mode, the red light blinking careful, casting a crimson shadow shape of his mis-shapen suit and self to the floor. One where when he looks, he notices another figure to his right. Leaned against the door and her arms crossed in front of her chest, not hard to recognise a figure too familiar in visions more than memories.
+Sounds of his steps, transitions from the soft half latex-plastic tacky floor-covering, to the clinking stiffness of those pale glossy tiles beneath his shoes. Crimson gloomy lights outside are in their dim powersaving mode, the red lights blinking careful, casting a bloody shadow the shape of his mis-shapen suit and self to the floor. When he looks to it, he notices another figure to his right. Leaned against the door and her arms crossed in front of her chest, not hard to recognise a figure too familiar in his visions more than his memories.
 
-She stares at Zoran cold, questioning; her smallest movements of lifting her chin to feign confidence.
+She stares at Zoran with a gaze comforting cold, interrogating; her smallest movements of lifting her chin to feign a confidence all natural to her being.
 
 "What?"
 
-Her voice is different. Not *different* different, her voice was still her voice, the same texture of sounds. But, it isn't the one which he'd spied on times before behind mirrors and windows, used to be more chirpy and willing. Cold? And he knows why, and he wants to comfort her. By him, comfort her unfortunate frozen up soul in a place already too cold.
+Aer sister's voice is different. Not different different, her voice was still her voice; the same texture of sounds. But, it isn't the one which he'd spied on times before behind mirrors and windows, more chirpy, and willing, colourful. Cold? And he knows why, and he wants to comfort her, he wants to be reassured by her this isn't her. But it shouldn't be him, to comfort her unfortunate crackled soul in a place already too cold.
 
-"Why are you here Luci?" And aer grin was too crooked, his hands too cold against himself.
+"Why are you here Luci?" And aer grin was too crooked, aer practices didn't pay off at the most critical moment!
 
 "Why can't I?" She smiles back.
 
-There's a time where ae would simply smile and skip away, waving Luci away in that same jolly prance as if ae expects Luci to chase aer. Yet ae is frozen.
+There's a time where ae would simply smile in understanding and skedaddle, waving away Luci in that same jolly prance as if ae expects Luci to chase aer. Yet ae is frozen in place.
 
-Luci tilts her head to the side, glancing to the wall behind him. "Nothing. That's alright." Ah, she walks away. So Zoran was the one dumbfounded in front of Luci, of course he is. He was scratching at the inside of his collars when he watched Luci walk away without any explanation.
+Luci tilts her head to the side, glancing to the wall behind him. "Nothing to talk about then." Ah, she walks away. Zoran is dumbfounded in front of Luci, of course he is, how could he ever grow up? He was scratching the inside of his collars when he watched Luci walk away, didn't give her any explaination.
 
 He brushes his fingers through his hair, trying to find some semblance of comfort in that static touch, buzzing in bare fresh seal just under his skull. He walk after where her place left a trace of shadow in still this darkness. He wants to figure out what had gone wrong, he's so scared of wanting to know what had gone wrong, it, he's afraid that what was wrong was him. And he feels like that would be unavoidable and he wants to try for it to not be and he wants it to be okay and he wants.
 
