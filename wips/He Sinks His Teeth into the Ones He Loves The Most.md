@@ -143,19 +143,19 @@ One makes sure to shiver at the cold. It is though warmer behind her, the door s
 
 There's little here that the people don't care about. They'd worry about the weather tomorrow, whether the snow on their roof would damage their lawns. Or somethings that are even out of their own control. Like whether that little timmy next door will graduate a university, bless home wealth and benefit them all, daydream about a much more prosperous time. It's a small run down that doesn't give much oppotunities for those born within. 
 
-Different from Dr Moiras, they are. She can't be bothered by those that pest amongst the bottom layer of humanity. Of which she cares even less so. 
+They are different from Dr Moiras. She cannot reasonably spare another single thought, to those that pest amongst the bottom layer of humanity. 
 
 But.
 
-The snow falling on the tip of her nose is a deviation from her routine. 
+The snow touching the tip of her nose is a deviation from her routine. 
 
 \-
 
-Luci finds the dawn coming with no orders from her mother. It's an immediate knowing, that this is her mother testing her. Of what she would do if there is nothing for her to do.
+Luci finds the dawn coming with no orders from her mother. An immediate understanding, that this is her mother testing her. Of what she would do, if there is nothing for her to do.
 
 (totally not because i don't know what to put them through.) 
 
-Simply, she sets herself off of her wait. Ticking are the time that she has before something is not done. She finds the trouble that they(her and) can't truly ever be at rest, though neither does she need to. The incessant ticking that is change going by her *should* be something that she can be habituated to... 
+Simply, she sets herself off of to wait. Ticking are the time that she has before something is not done. She finds the trouble that they(her and) can't ever truly be at rest, though neither does she need to. The incessant ticking, that is change going by her, *should* be something that she can be habituated to... 
 
 No longer a need for the timeliness of her response.
 
