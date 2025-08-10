@@ -10,7 +10,7 @@ Ae wonders, walking down another recently known maze, the veil has grown from my
 
 They gave no acknowledgement to him when he came back to this ecosystem. Same arrangement of work cells and grey ceilings, same ones that gave only guessing room to victims that'd never return.
 
-The Doctor raised an alert gaze to his intrusion. He had entered through the wrong door, but it just the one closest for aer to access. She'd only frown, returning to operate at the seeming bloody mess that laid on the operating desk, while jars of red and black surrounded them. This mess, irked him. Growing, his head in a daze, the blood entering carelessly into his squinted eyes, unable to identify whom, or what, or where, the person that laid on the operating table.
+The Doctor raised an alert gaze to his intrusion; he had entered through the wrong door, but it was just the one closest for aer to access. She only frowned, and returned to operate at the seeming bloody mess on the operating desk, while jars of red and black surrounded them. Mess that this was, irked him. Growing, his head in a daze, blood entering his squinted eyes, unable to identify whom, or what, or where, the person that laid on the operating table.
 
 -
 
@@ -19,17 +19,17 @@ The subject on her familiar silver platter wakes.
 Bright operating lights shining down upon her, at this moment, she knew her duty, a simple one at that: do not move. 
 Well, really, she couldn't move.
 
-"Stay still." The Doctor's voice rung the room like a curse to her. Luci was unknowingly writhing in her confines. Put now to light, she stilled in more silence, silence that her heart wished to cease. Every other machination in her that churned, stilled to a halt, all which recognised their creator's work. She kept her gaze to the light, they that burnt in her retinas as the posite glow, whenever her eyes gave up and flicked to the darkness. She couldn't feel anything beneath her neck, assuming the worst.
+"Stay still." The Doctor's voice rung the room like a curse to her. Luci was unknowingly writhing in her confines. Put now to light, she stilled in silence, silence that her heart protested against. Even every other machination in her that churned, stilled to a halt, all which recognised their real creator. Luci kept her gaze to the light, persistant in her retinas as the posite glow, whenever her eyes gave up and flicked to the darkness. She felt nothing beneath her neck, and could only assume the worst.
 
-But she could hear, as the hands stilled for a moment, and the fumbling of distraught shoes clacked into the room. She looked over, unmoving in every part but her eyes. Out of the corner of her vision, there a figure in white and purple, lurched over and clattered like a puppet cut from his strings to the ground. In her calculations, she would feel bad for this instance, perhaps panic and tell her surgeon to assist the person that has just collapsed in this very room.
+But she could hear. As the hands stilled for a moment, and the fumbling of distraught shoes clacked into the room. She peered over, unmoving in all but her eyes. There, out of the corner of her vision, a figure in white and purple, lurched over and clattered like a puppet cut from his strings. Beyond her calculations, she may feel bad. Perhaps panic and tell her surgeon to assist the person that has just collapsed in this room first.
 
 "He'll live."
 
 Luci, doesn't move.
 
-Dr Moiras, doesn't move. Except to her subject, quickly continuing with her clattering, picking up and putting down her metallic instruments, tinkering with her body, her self, her organs. Luci couldn't fear, that trait is far too useless in this place. Her own instruments currently out of touch and out of control. The false safety this sanctity of a metal bed gives her, is temporary, is juvenile.
+Dr Moiras, doesn't alter her course. None beyond her current objective, quickly continuing with her clattering, picking up and putting down her metallic instruments, tinkering with her body, her self, her organs. Luci couldn't fear, it's useless. Her own, real instruments were currently out of reach. The false safety this sanctity of a metal bed gave her, was temporary, juvenile.
 
-The smell of ozone, a stench in the air that seemed to have grown, somehow even more pungent with the particular strain that her little not-friend has intruded in with. He laid there, staining an already contaminated vinyl floor. Aer mother hummed as she operated on someone else.
+The smell of ozone, a stench in the air, seemed to have changed. Growing somehow, even more pungent by the introduction of a particular strain that her little not-friend brought in. Lain there, staining an already contaminated vinyl floor. His boss hummed as she operated on someone else.
 
 -
 
@@ -37,15 +37,15 @@ A sharp, unmovable pain. Zoran is restrained to the operating table, where force
 
 "The cost of anaesthetics are a lot, I'm sure you can keep quiet, won't you?"
 
-That gave aer the forewarning, that didn't stop the future from happening. As without a response in time, ae felt the scalpel cut through the cheap strings that held his neck to the rest of his body. His doctor caressed his head as he watched as she held it up to the light, and felt. The wires that hung loose out of his neck cavity, they that stretched and curled around each other. Worthless little contraptions that worked like wonder and purpose on those that weren't him.
+That gave aer the forewarning, that didn't stop the future from happening. As without a response in time, ae felt the scalpel cut through the cheap strings that held his neck to the rest of his body. The hand that caressed his head as she held it up to the light, and felt. Warm. Wires hung loose out of his neck cavity, stretched, tangled around his faults. Worthless little contraptions that worked like wonder and purpose, if only it all weren't him.
 
-He felt tapping against his skull, cold liquid belonging to him trickled needlessly out of the wound. All too close to his own other sensors. Having learnt many times from the times before, but this time, she stayed silent. The Doctor laid her gaze at the fractals made from the impact wound.
+Something rattled against his skull, cold fluid once belonging to him trickled needlessly out of the wound. All too close to his own other sensors. He's learnt this many times before, but this time, she stayed silent. The Doctor laid her gaze to the fractals made from the impact wound.
 
-"Are you finding anything mom?" He asks, this room doesn't feel colder than he remembers.
+"Are you finding anything mom?" The silence ate him up, this room doesn't feel colder than he remembers.
 
 "No, I won't." She stills her instruments. "Do you want me to find anything then?" 
 
-"... ...Probably." Even Zoran questioned what he wanted to say. He thought about whether it was something else rather than this. Wouldn't he know, it was just his mom's work job, for,, whatever. Besides, it always ends in the end. It all ends with something of his being lost. But always, he'll be good again. That is his mom after all.
+"... ...Probably." Zoran questioned what he really wanted to say. He wondered if it was something else rather than this. Wouldn't he know. Still another one of his mom's work. Besides, it always ends in the end. It all ends with something of his being lost. Then, he'll be good again. 
 
 Dr Moiras worked her way through everything; modifying the flesh of other organisms ae'd probably helped to bring here. Nowadays she has more efficient workers for this duty, but, ae guessed that it's probably due to the time that aer mom had spent on him, that effort, that she hasn't left him yet... Darkening over, maybe it's something fearful, in the fragments that she had bestowed in an amalgamation to him. Something, it's something over him. Something within him, a hole having ebbed away at his future.
 
@@ -53,7 +53,7 @@ These unfamiliar pieces, stored in their dark jars and vials. Most of them label
 
 "I see. Your skull was nearly shattered, if not for how it's built into sections. Contaminated fractals, blunt force by a feral entity... I expected better from you." Sat through the examination, he tried to focus on her words, though they had also begun to disintegrate from aer mind as soon as they came into his ears.
 
-Through the haze, he was operated on. It's hard not to empathize with the price being paid, Whose body parts are they... 
+Through the haze, he was operated on. It's hard not to empathize with the price being paid, Whose body parts were they... 
 
 -
 
@@ -199,11 +199,24 @@ By the beige and pale. The couches were haphazardly pushed against the wall. The
 
 Nonetheless, he checks, that tells him very much! It does still have electricity as some dull brown comes out and drips to the catcher. He looks around for mugs, cups. There's a rack by the otherside, besides the sink. The mugs also have a layer of dust on them. Ae takes the one that has a 3 handle, and a silly graphic on the front, a grey infinity sign and the words "*The Universe will always be with us!*" cutting through it. Despite how interesting it may be, the time that he took to read it has the coffee machine liquid overflowing out the catcher and onto the table, dripping steadily to the floor, still buzzing with coffee making noises, the coffee grounds in it used and old. 
 
-Mug quickly put underneath the spout, the dust about it wiped away with aer scarf on aer way when scampering back. Ah... 
-The floors are staining. The wood already soaking up the coffee like it's the first thing it's drank in years other than polish and wax. Time wears somethings down, including the bounds of their, and the carols they would sing as Zoran steps over them once again. 
+A mug goes quickly underneath the spout, conveniently wipe away the dust with aer scarf on aer way scampering back. Ah... 
+The floors are staining. The wood already soaking up the coffee like it's the first thing it's drank in years other than polish and wax. Time wears things down, these timber varnish, and the carols they would harmonise along, as Zoran steps over them once again. 
 
 Creaky little things... 
-Not their fault for existing, they were only manufactured to turn out this way and it's the best that they could want to be anyw- Stop, stop, stop. Think something else. 
+
+Ae hums lullabyes, look around again. 
+
+Not their fault for existing, their only birth sins were to be manufactured, to turn out this way. And it's the best that they could want to be anyw- Stop, stop, stop. Think something else. 
+
+Zoran thinks of things that invoke calmness, things that tells aer 'there's someone waiting for you'. Difficult to believe, but signs like that did exist nevertheless. In the way ae would notice everything else you're not meant to pay attention to; the directions that the wood grain flowed; the gradient of colours in a distant cloud; how silence felt in his ears, a moment where birds did not chirp. 
+
+He closes his eyes. Despite his own imagination being similarly disappointing as the rest of himself, he begins to recall. Purple trees, broken land beneath his steps, chimes of laughter, crystaline b- He opens his eyes before his heart's alarm, breathing deeply, the smell of mould in the air, coffee stained floor in front of his eyes. 
+
+That was not helpful.
+
+Walk away. 
+
+...
 
 ### Deleted scenes.
 
